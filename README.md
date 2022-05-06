@@ -1,1 +1,1 @@
-I studied computer science at the University of Havana for two years and and I am currently teaching myself data analysis with python and web development.
+Junior Software Engineer with 1+ years of experience, seeking full-time Full Stack roles.
